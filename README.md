@@ -1,1 +1,0 @@
-# joseobandobalvin.github.io
